@@ -15,6 +15,7 @@ _If I had to pick a deadly sin, it'd have to be be gluttony_
 * [Teardrop Cocktail Lounge](https://www.yelp.com/biz/teardrop-cocktail-lounge-portland?adjust_creative=bing&utm_campaign=yelp_feed&utm_medium=feed_v2&utm_source=bing)
 * If you ever see Carte Blanche open again go there!  http://www.carteblanchefoodcart.com/
 * SakéOne Brewery - to get sake by the growler
+* [Jake's Famous Crawfish](http://www.mccormickandschmicks.com/locations/portland-oregon/portland-oregon/sw12thave.aspx) One of the best seafood restaurant there
 
 ## Adventure 
 _Because I probably have to fill time between eating and working_
