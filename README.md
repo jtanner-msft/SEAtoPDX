@@ -9,6 +9,7 @@ _Laughter is medicine and life's too short to take things too seriously_
   Vancouver = Vancouver, British Columbia, ‘The Couve’ = Vancouver, Washington
   
 * Have you watched [Portlandia](http://www.imdb.com/title/tt1780441/) TV show? Check if out so you are ready for Portland
+* Enjoy the life in Portland for tax free shopping 
 
 ## Food 
 _If I had to pick a deadly sin, it'd have to be be gluttony_
@@ -16,6 +17,8 @@ _If I had to pick a deadly sin, it'd have to be be gluttony_
 * If you ever see Carte Blanche open again go there!  http://www.carteblanchefoodcart.com/
 * SakéOne Brewery - to get sake by the growler
 * [Jake's Famous Crawfish](http://www.mccormickandschmicks.com/locations/portland-oregon/portland-oregon/sw12thave.aspx) One of the best seafood restaurant there
+* [Ya Hala Lebanese](http://yahalarestaurant.com/) 
+* [East India Company](http://eicpdx.com/)
 
 ## Adventure 
 _Because I probably have to fill time between eating and working_
