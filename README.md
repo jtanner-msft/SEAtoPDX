@@ -16,13 +16,18 @@ _Laughter is medicine and life's too short to take things too seriously_
 _If I had to pick a deadly sin, it'd have to be be gluttony_
 * [Teardrop Cocktail Lounge](https://www.yelp.com/biz/teardrop-cocktail-lounge-portland?adjust_creative=bing&utm_campaign=yelp_feed&utm_medium=feed_v2&utm_source=bing)
 * If you ever see Carte Blanche open again go there!  http://www.carteblanchefoodcart.com/
-* SakéOne Brewery - to get sake by the growler
+* SakéOne Brewery (https://sakeone.com/) - to get sake by the growler
 * [Jake's Famous Crawfish](http://www.mccormickandschmicks.com/locations/portland-oregon/portland-oregon/sw12thave.aspx) One of the best seafood restaurant there
 * [Ya Hala Lebanese](http://yahalarestaurant.com/) 
 * [East India Company](http://eicpdx.com/)
+* Kenny and Zukes (http://www.kennyandzukes.com/) good breakfast & lunch
+
 
 ## Adventure 
 _Because I probably have to fill time between eating and working_
 * Pittock mansion is fun
 * Living Room Theater is fun
 * Multnomah Falls (http://www.oregon.com/attractions/multnomah_falls)
+* Edgefield (https://www.mcmenamins.com/edgefield)
+* Kennedy School House (https://www.mcmenamins.com/kennedy-school)
+* Powells Books (http://www.powells.com/)
