@@ -10,6 +10,7 @@ _Laughter is medicine and life's too short to take things too seriously_
   
 * Have you watched [Portlandia](http://www.imdb.com/title/tt1780441/) TV show? Check if out so you are ready for Portland
 * Enjoy the life in Portland for tax free shopping 
+* Watch Short Circuit [- shot in Oregon](https://www.youtube.com/watch?v=23_642IALG8)
 
 ## Food 
 _If I had to pick a deadly sin, it'd have to be be gluttony_
@@ -24,3 +25,4 @@ _If I had to pick a deadly sin, it'd have to be be gluttony_
 _Because I probably have to fill time between eating and working_
 * Pittock mansion is fun
 * Living Room Theater is fun
+* Multnomah Falls (http://www.oregon.com/attractions/multnomah_falls)
